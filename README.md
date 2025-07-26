@@ -1,1 +1,1 @@
-# CompleteSuicideManual-2023
+nnnn
